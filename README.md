@@ -12,3 +12,5 @@
 
 ### For each project, I am awarded cups🏆 (points) from 1 to 3 depending on the uniqueness and quality of the project.
 ### All cups🏆 (points) are added to the main pool at the top
+
+#### © Copyright 2024 | All rights reserved. Oskar Trybała
